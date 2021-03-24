@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @manniefesto
+- 👀 I’m interested in mechanical keyboards, security and gaming.
+- 🌱 I’m currently learning how to solve a rubiks cube.
